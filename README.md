@@ -16,9 +16,6 @@
 
 
 
-### ⚡ Fun fact:
-- My dream is to **stand atop the podium at the LA 2028 Olympics**, winning a gold medal in swimming!
-
 
 ---
 
